@@ -1,4 +1,4 @@
-## <H1> 👋👋👋 Hello, I'm Cao ng Khai 👋👋👋
+## <H1> 👋👋👋 Hello, I'm Cao Hoang Khai 👋👋👋
 
 ## 🌐Socials
 [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://www.facebook.com/hoang.khai.935928/)
